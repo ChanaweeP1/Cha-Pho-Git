@@ -7,3 +7,4 @@ Ready to get F
 Takoyaki
 Pizza
 Karma
+จะหมัดจะมวยจะควยไรก็เข้ามา
